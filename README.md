@@ -1,0 +1,6 @@
+![Facebook logo](https://github.com/zaenauyu/Decalcomania/assets/164422609/157aba54-2ce9-4a73-b446-f1937e263939)
+![Decalcomania logo](https://github.com/zaenauyu/Decalcomania/assets/164422609/25f49415-3a83-404c-bff5-6167b719bece)
+![About](https://github.com/zaenauyu/Decalcomania/assets/164422609/579e747c-fb03-48ba-a614-aa6c430989bd)
+![Pinterest logo](https://github.com/zaenauyu/Decalcomania/assets/164422609/3d15c811-9308-41ae-9b7f-59ac638ec118)
+![Insta logo](https://github.com/zaenauyu/Decalcomania/assets/164422609/a67bc81e-13ca-4d0a-92c6-4d19d4faab80)
+![X logo](https://github.com/zaenauyu/Decalcomania/assets/164422609/0418584b-4a8a-44a6-8bad-e2041d0a5644)
